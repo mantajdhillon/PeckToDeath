@@ -1,6 +1,6 @@
 # PeckToDeath
 Quackathon 2022 project
-Welcome to <PECK TO DEATH>!
+Welcome to PECK TO DEATH!
 We need your help to crush the chickens. The chickens have been our enemies for the longest time.
 "wHat cAmE fiRsT, tHe cHiCken oR tHe eGG?" I'll tell you, IT WAS DUCKS! DUCKS CAME FIRST!
 How dare they copy our whole vibe.
